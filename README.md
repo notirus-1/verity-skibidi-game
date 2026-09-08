@@ -1,0 +1,2 @@
+# verity-skibidi-game
+HELLOOOO! ITS ME, VERITY, YOUR PERSONAL HELPER FRIEND!
